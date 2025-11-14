@@ -1,1 +1,1 @@
-It's a sociological treatise on the issue of social degeneracy which proposes government intervention as a solution.
+It's a sociological treatise on the issue of social degeneracy which proposes government intervention as a solution. The work is licensed under "Creative Commons Attribution-ShareAlike 4.0 International", that means, you can use the work for any purpose as long as you attribute to the author (miculpionier) and redistribute it under the same license.
